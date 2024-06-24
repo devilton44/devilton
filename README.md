@@ -1,2 +1,2 @@
 # devilton
-ALL HAIL ISRAEL
+
